@@ -1,4 +1,4 @@
-Hello everyone my name is Coffeeman i recently change my name to ITrsut on discord.
+Hello everyone my name is Coffeeman I recently change my name to ITrsut on discord.
 
 I am a very friendly person who loves to learn new things even if its challenging. My goal is to work hard to make things easier on people.
 I can do resourcepacks, .yml files, html, css, management and fix servers through log files or console
