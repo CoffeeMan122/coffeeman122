@@ -1,3 +1,4 @@
+![code_text_colorful_140555_2560x1440](https://user-images.githubusercontent.com/83092217/125676672-54b817db-4454-4cf4-89b6-7fd86628a307.jpg)
 Hello everyone my name is Coffeeman I recently change my name to ITrsut on discord.
 
 I am a very friendly person who loves to learn new things even if its challenging. My goal is to work hard to make things easier on people.
