@@ -2,8 +2,7 @@ Hello everyone my name is Coffeeman I recently change my name to ITrsut on disco
 
 I am a very friendly person who loves to learn new things even if its challenging. My goal is to work hard to make things easier on people.
 I can do resourcepacks, .yml files, html, css, management and fix servers through log files or console
-Here are some ideas to get you started:
-
+I can also do modpacks for people with mcreator and just modpack setups in general!
 
 - I am currently working on a hosting company with my friend
 - I am currently learning php, javascript and java and c++
